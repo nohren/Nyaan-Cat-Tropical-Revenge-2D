@@ -1,7 +1,8 @@
-# :smiley_cat: Nyaan-Cat-Tropical-Revenge :palm_tree: 
+Nyaan-Cat-Tropical-Revenge
 
 Nyaan cat is back with an A-10 Warthog gatling gun to fend off the Tac-Naayn's as they disturb the balance of the worlds yin and yang.
-  
+
+**Volume is LOUD**
  
   
 **Compatibility:** 
